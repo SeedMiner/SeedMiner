@@ -1,0 +1,1 @@
+Free Seedminer for crypto.
